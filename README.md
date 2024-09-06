@@ -1,1 +1,1 @@
-# Trabajo-Pr-ctico-N-2
+# Trabajo-Practico-N-2
